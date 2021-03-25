@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lasthouseontheleft
-- 👀 I’m interested in video games and movies and now learning how to code!
+- 👀 I’m interested in video games and movies and now learning how to code! Silent hill and Resident Evil.
 - 🌱 I’m currently learning the basics to coding.
 - 💞️ I’m looking to collaborate on everything and anything once i learn how this all works!
 - 📫 How to reach me a message on here!
